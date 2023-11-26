@@ -44,7 +44,7 @@
 
 [Euphoria | art gallery](https://t.me/+YX6pxM16FZ41ZTBi) 18+
 
-[Фотографы и модели 18+](https://github.com/comat0zz/links/blob/main/Photos.md) там многие с платной подпиской, но бесплатных материалов вполне хватает
+[Фотографы и модели](https://github.com/comat0zz/links/blob/main/Photos.md) 18+! Многие с платной подпиской, но тех бесплатных материалов, что в лентах, вполне хватает.
 
 
 
