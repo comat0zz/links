@@ -40,6 +40,8 @@
 
 [LIZZIEARTIST](https://t.me/lizzieartist)
 
+[НРИНРЯ арт (нейронки) 18+](https://t.me/rpg_art)
+
 
 
 ## Ресурсы для практики
