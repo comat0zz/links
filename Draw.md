@@ -40,7 +40,7 @@
 
 [LIZZIEARTIST](https://t.me/lizzieartist)
 
-[НРИНРЯ арт (нейронки) 18+](https://t.me/rpg_art)
+[НРИНРЯ арт (нейронки) 18+](https://t.me/rpg_art) Неплох для поиска референсов
 
 
 
