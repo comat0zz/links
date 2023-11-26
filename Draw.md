@@ -20,7 +20,7 @@
 
 ## Ленты в телеге о всяком, уроки, рефы
 
-[Royal Arts](https://t.me/royal_arts1)
+[Royal Arts](https://t.me/royal_arts1) 18+
 
 [Уроки и туториалы](https://t.me/lessons_and_tutorials)
 
@@ -42,7 +42,7 @@
 
 [НРИНРЯ арт (нейронки) 18+](https://t.me/rpg_art) Неплох для поиска референсов
 
-[Euphoria | art gallery](https://t.me/+YX6pxM16FZ41ZTBi)
+[Euphoria | art gallery](https://t.me/+YX6pxM16FZ41ZTBi) 18+
 
 
 
