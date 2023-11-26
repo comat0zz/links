@@ -5,7 +5,7 @@
 
 ## Файловые ресурсы для поиска всяких книжечек
 
-[Artwork Gallery][https://vk.com/topic-4918594_27696136]
+[Artwork Gallery](https://vk.com/topic-4918594_27696136)
 
 [ARTIST BASE | БАЗА ХУДОЖНИКА](https://t.me/+PZGCDXT-otQzNmQy)
 
