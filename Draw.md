@@ -18,7 +18,7 @@
 Я использую только один. В нем много челленджей для скетчей, потоком идут. https://t.me/sketching_non_stop_chat
 В чате люди не токсичные, помогают еще по разным вопросам. 
 
-## Ленты в телеге о всяком
+## Ленты в телеге о всяком, уроки, рефы
 
 [Royal Arts](https://t.me/royal_arts1)
 
@@ -41,6 +41,8 @@
 [LIZZIEARTIST](https://t.me/lizzieartist)
 
 [НРИНРЯ арт (нейронки) 18+](https://t.me/rpg_art) Неплох для поиска референсов
+
+[Euphoria | art gallery](https://t.me/+YX6pxM16FZ41ZTBi)
 
 
 
